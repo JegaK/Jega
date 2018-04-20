@@ -6,3 +6,4 @@ Citation 2:
 Être l'homme le plus riche du cimetière ne m'intéresse pas. aller me couche le soir en me disant que j'ai fait des choses extraordinaire aujourd'hui, voila ce qui compte.
 
 Citation 3:
+L'innovation, c'est une situation qu'on chosit parce qu'on a une passion brûlante pour queleque chose.
