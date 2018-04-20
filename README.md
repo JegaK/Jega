@@ -10,3 +10,6 @@ L'innovation, c'est une situation qu'on chosit parce qu'on a une passion brûlan
 
 Citation 4: 
 Souvant, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous vous le leur montriez.
+
+Citation 5: 
+En moin une semaine, nous sommes devenus le plus grand distributeur de musique de monde.
