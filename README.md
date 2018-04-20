@@ -4,3 +4,5 @@ Votre temps est limité, ne le gâchez pas en menant une existence qui n'est pas
 
 Citation 2: 
 Être l'homme le plus riche du cimetière ne m'intéresse pas. aller me couche le soir en me disant que j'ai fait des choses extraordinaire aujourd'hui, voila ce qui compte.
+
+Citation 3:
