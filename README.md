@@ -16,3 +16,6 @@ En moin une semaine, nous sommes devenus le plus grand distributeur de musique d
 
 Citation 6: 
 Voulez vous passer le rest de votre vie à vendre de l'eau sucrée. ou voules - vous changer le monde?
+
+Citation 7: 
+Personne ne veut mourir. meme les gens qui veulent aller au paradis ne veulent pas murir plus vite pour y aller. Et poutant, la mort est notre distin a tous. Perssone n'y a jamais échappé. Et c'est ainsi que cela droit être, parce que la mort est sans nul doute la meilleur invention de la vie.c'est ce qui la rend si importante. il efface l'ancienpour faire place au nouveau En ce moment le nouveau , c'est vous mais un jour, pas si éloigné, vous allez devenir prograssivement l'ancience être effacé... Désole etre aussi dramatique, mais c'est assez vrai.
