@@ -13,3 +13,6 @@ Souvant, les gens ne savent pas ce qu'ils veulent jusqu'à ce que vous vous le l
 
 Citation 5: 
 En moin une semaine, nous sommes devenus le plus grand distributeur de musique de monde.
+
+Citation 6: 
+Voulez vous passer le rest de votre vie à vendre de l'eau sucrée. ou voules - vous changer le monde?
